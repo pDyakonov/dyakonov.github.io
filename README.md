@@ -1,1 +1,0 @@
-# dyakonov.github.io
